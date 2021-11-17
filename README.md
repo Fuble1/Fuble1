@@ -1,5 +1,1 @@
-### Hi there 👋
-
-- 🔭 I’m currently not working (xd)
-
-### About Me
+### Hi there, I'm Fuble, AKA quello che non fa niente
